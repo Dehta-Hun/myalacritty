@@ -1,3 +1,0 @@
-# myalacritty
-# myalacritty
-# myalacritty
